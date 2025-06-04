@@ -25,3 +25,14 @@ goglol117@gmail.com
 
 **Это имя принадлежит мне. lolpips — это я.**
 
+🔴 Официальные аккаунты:
+
+■ Youtube: lolpips_official
+https://youtube.com/@lolpips_official
+■ Tiktok: lolpips_official
+https://tiktok.com/@lolpips_official
+■ Facebook: lolpips.official
+https://www.facebook.com/lolpips.official
+■ Instagram: lolpips_
+https://www.instagram.com/lolpips_
+
